@@ -11,3 +11,12 @@
 
 ---
 [![](https://visitcount.itsvg.in/api?id=ArthurSantosOliveira&icon=0&color=0)](https://visitcount.itsvg.in)
+
+Cursos: 
+https://cursos.alura.com.br/user/pessoalarthursoliveira/fullCertificate/8cb2b664c8b891372066648218d9f2ef
+CC50: Introdução à Ciência da Computação - O Curso de 
+Harvard, no Brasil - FUNDAÇÃO ESTUDAR –(ONLINE) 
+26/07/2022 · 70 h.
+MARKETING NA VIDA REAL – UMA PARCERIA PRERESTROIKA 
+E GAMA ACADEMY - PERESTROIKA- ( ONLINE) 06/2021 · 
+4h30min
